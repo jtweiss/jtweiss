@@ -10,4 +10,4 @@ Stay curious.
 
 Email:  jweiss13@northwell.edu 
 
-Linked-in:  https://www.linkedin.com/in/james-weiss-4b835810b/
+LinkedIn:  https://www.linkedin.com/in/james-weiss-4b835810b/

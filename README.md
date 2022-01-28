@@ -1,3 +1,5 @@
+![alt text](https://i.redd.it/rx1ep205bji01.png)
+
 Hello there👋🏻,
 
 My name is James Weiss, and I love data in the dorkiest way possible. 

@@ -1,4 +1,4 @@
-![picel art man](https://user-images.githubusercontent.com/47125952/151568506-37adb5ff-af54-4702-8b90-dfbbcb5bc75b.jpg)
+![picel art man](https://user-images.githubusercontent.com/47125952/151568598-6bc9022c-0142-4056-bc4b-19ed93f04870.jpg)
 
 Hello there👋🏻,
 

@@ -13,4 +13,4 @@ Stay curious.
 LinkedIn:  https://www.linkedin.com/in/james-weiss-4b835810b/
 
 
-![alt text](http://url/to/img.png)
+![shutterstock_1120220267](https://user-images.githubusercontent.com/47125952/161437201-08246d74-1d1a-4fec-b077-9864fa35b94f.jpg)

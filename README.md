@@ -12,4 +12,5 @@ Stay curious.
 
 LinkedIn:  https://www.linkedin.com/in/james-weiss-4b835810b/
 
-![picel art man](https://user-images.githubusercontent.com/47125952/151568598-6bc9022c-0142-4056-bc4b-19ed93f04870.jpg)
+
+![alt text](http://url/to/img.png)
